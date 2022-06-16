@@ -10,4 +10,4 @@ Main2中包含我的好兄弟副歌部分
 
 运行后切原神打开琴，5秒开始弹
 
-
+https://www.bilibili.com/video/BV1h94y127kR/
